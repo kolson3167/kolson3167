@@ -2,7 +2,7 @@ Hi, I'm Kate! 👋
 
 About Me 💗
 
-- 🏫 I'm currently studying Business Analytics & Informations Systems at the University of Iowa
+- 🏫 I'm currently studying Business Analytics & Informations Systems at the University of Iowa, Graduating May 2028
 - 👀 I'm looking for an internship as a Data/Business Analyst 
 - 😄 Pronouns: she/her
 - 📚 Fun fact: I love to read
